@@ -1,0 +1,2 @@
+# python
+aku suka traveling
